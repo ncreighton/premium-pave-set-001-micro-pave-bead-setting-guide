@@ -1,0 +1,2 @@
+# premium-pave-set-001-micro-pave-bead-setting-guide
+Micro pave bead setting requires precision that most jewelers wing—leading to inconsistent stone placement, wasted materials, and frustrated clients. The Micro Pave Bead Setting Guide eliminates guesswork by giving you a structured system to execute flawless pave work every single time.  This Notion template transforms micro pave bead setting from
